@@ -1,1 +1,2 @@
-i don't really know what to put here since i wrote everything in the wiki
+hey i'm cassian, check out my repository
+my favorite food is bacon with chick-fil-a sauce rice
